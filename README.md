@@ -1,3 +1,4 @@
 # DEPI-Digital-Marketing
 Asmaa Ibrahim -Thiraha-handmade product
-https://drive.google.com/drive/folders/1quvtsoLrnKPLZlod9XyglBLd1ELLdGS4?usp=drive_link
+
+https://www.canva.com/design/DAGcYUHArJA/NWuO6W0TR73JodYerHURhg/edit?utm_content=DAGcYUHArJA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
